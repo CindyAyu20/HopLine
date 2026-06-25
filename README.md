@@ -42,7 +42,7 @@ Download the html file and double click it. There is nothing to install. It open
 ## verification
 
 This account belongs to me, for cup verification:
-https://x.com/cindymarjoryy
+[@cindymarjoryy](https://x.com/cindymarjoryy)
 
 (Fair warning, I barely post there.)
 
